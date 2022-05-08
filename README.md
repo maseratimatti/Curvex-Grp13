@@ -1,2 +1,0 @@
-# Curvex-Grp13
- 
